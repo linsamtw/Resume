@@ -1,2 +1,3 @@
 # Resume
-[Click](https://github.com/f496328mm/Resume/blob/master/resume.pdf)
+[view](https://drive.google.com/file/d/11VtUtUfY1QHyNCXLqwb5rKR4Xdv2c9mH/view)
+<!-- [download](https://drive.google.com/file/d/11VtUtUfY1QHyNCXLqwb5rKR4Xdv2c9mH/view)
